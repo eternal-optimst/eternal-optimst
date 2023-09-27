@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @eternal-optimst
+- 👀 I’m interested in ensuring a new monetary system that is in harmony with life on earth.
+- 🌱 I’m currently learning how to navigate Web3
+- 💞️ I’m looking to collaborate on a philosophical and practical movement to make crytocurrencies more aligned with sustainability and social justice.
+- 📫 I'm on Discord as eternal.optimist
